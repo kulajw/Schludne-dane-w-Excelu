@@ -1,0 +1,1 @@
+# Schludne-dane-w-Excelu
